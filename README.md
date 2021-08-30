@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sdubb
+- 👋 Hi, I’m Shubham Dubey
 - 📫 reach me on shuubhamdubey3131@gmail.com
 
 <!---
